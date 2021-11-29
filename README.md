@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @SakshiTakale
+- 🌱 I’m currently learning Engineering Physics at IIT Hyderabad
